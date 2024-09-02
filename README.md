@@ -38,9 +38,9 @@ This project is licensed under the [MIT License](LICENSE). See the [LICENSE](LIC
 ## Follow Us
 
 Stay connected with us on social media for the latest updates and inspiration:
-- [Facebook](https://www.facebook.com/wkistyle)
-- [Instagram](https://www.instagram.com/wkistyle)
-- [Twitter](https://twitter.com/wkistyle)
+- [Facebook](https://www.facebook.com/people/Th%E1%BA%BF-gi%E1%BB%9Bi-phong-c%C3%A1ch-Wkistyleorg/61558541086184/)
+- [Pinterest](https://www.pinterest.com/thegioistyle/)
+- [Twitter](https://twitter.com/thegioistyle)
 
 Thank you for visiting **Wkistyle**! We hope you find our content inspiring and valuable.
 
